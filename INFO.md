@@ -13,4 +13,8 @@ When you're in my google classroom, follow the insturctions in the ENROLL assign
 Deadline to enroll is at: Feb 26, 2021.
 
 Good luck!
+
+# Google Classroom Link:
+https://secure.pikachew.gq/joindiscordpy
+
  
